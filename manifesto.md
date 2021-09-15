@@ -1,5 +1,5 @@
 # A Mutliverse Manifesto
-The purpose of the metaverse is for it to be explored. That's it. It exists for you, the user, to experience, to enjoy; that is its reason: to be. Like our world, it was created and exists outside of ourselves. It is a gift, free and unencumbered except by those rules we impose on others.
+The purpose of the metaverse is for it to be explored. That's it. It exists for you, the user, to experience, to enjoy; that is its reason: to be. Like our world, it was created and exists outside of ourselves. It is a gift, free and unencumbered except by those rules we impose on others. It is not owned nor controlled by any single individual or corporation. While sections may be moderated, it is open to all. 
 ## Definitions
 The metaverse is a set of universes. 
 Each Universe has physical principles, rules, dimensions and a style, and contains a set of solar systems. 
